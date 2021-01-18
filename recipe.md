@@ -1,0 +1,1 @@
+"First mix all the dry ingredients of flour,sugar,baking soda,baking powder,and choco chips together. Then add the milk,water and eggs. After that put the batter into cupcake wrappers and put it into the oven. After this mix food coloring and frosting to create any color of your choice. Then go ahead and frost the cupcake."
